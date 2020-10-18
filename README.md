@@ -1,4 +1,4 @@
-## Hi, I'm Zach!
+## Hi, I'm Zach! :wave:
 
 Hi, my name is Zach Sheppard!
 
